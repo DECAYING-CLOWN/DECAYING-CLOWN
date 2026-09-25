@@ -1,11 +1,11 @@
 <div align="center">
 
-![Profile visitors](https://komarev.com/ghpvc/?username=DECAYING-CLOWN&label=clowns&color=red&style=flat-square)
+![Profile visitors](https://komarev.com/ghpvc/?username=DECAYING-CLOWN&label=souls&color=red&style=flat-square)
 
 </div>
 
 <p align="center">
-  <img src="https://files.catbox.moe/7npsf8.gif" alt="Kai anderson"/>
+  <img src="https://files.catbox.moe/vd93dd.gif" alt="JPM"/>
 </p>
 
 <p align="center">
@@ -16,5 +16,5 @@
 [𝐑𝖾𐓣𝗍𝗋𝗒](https://rentry.co/alwayssunnyphilly) [𝐀𝗍α](https://alwayssunnyinphilly.atabook.org/) [𝗌𝗍𝗋αωρα𝗀𝖾](https://alwayssunnyphilly.straw.page) [𝐏𝗋ⱺ𐓣ⱺυ𐓣𝗌 ρα𝗀𝖾](https://en.pronouns.page/@BRODY-BAYWATCH)
 
 <p align="center">
-𝐏ⱺ𐓣𝗒𝗍ⱺω𐓣𝗌 𝐊α𝗂 𝐀𐓣ᑯ𝖾𝗋𝗌ⱺ𐓣 | I DO NOT SUPPORT KAI ANDERSON!
+𝕻᥆ᥒᥡ𝗍᥆ᥕᥒs 𝕵ᥲmᥱs 𝕻ᥲ𝗍rіᥴk 𝕸ᥲrᥴһ! | I DO NOT SUPPORT JPM!
 </p>

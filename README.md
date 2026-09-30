@@ -1,6 +1,6 @@
 <div align="center">
 
-![Profile visitors](https://komarev.com/ghpvc/?username=DECAYING-CLOWN&label=witches&color=yellow&style=flat-square)
+![Profile visitors](https://komarev.com/ghpvc/?username=DECAYING-CLOWN&label=witches&color=red&style=flat-square)
 
 </div>
 
@@ -16,5 +16,5 @@
 [𝐑𝖾𐓣𝗍𝗋𝗒](https://rentry.co/decayingcl0wn) [𝐀𝗍α](https://alwayssunnyinphilly.atabook.org/) [𝗌𝗍𝗋αωρα𝗀𝖾](https://alwayssunnyphilly.straw.page) [𝐏𝗋ⱺ𐓣ⱺυ𐓣𝗌 ρα𝗀𝖾](https://en.pronouns.page/@BRODY-BAYWATCH)
 
 <p align="center">
-𝐏ⱺ𐓣𝗒𝗍ⱺω𐓣𝗌 Kyle Spencer ! GIFT ME KYLE SPENCER GIFTS GUYS
+𝐏ⱺ𐓣𝗒𝗍ⱺω𐓣𝗌 Kyle Spencer ! GIFT ME KYLE SPENCER PONIES GUYS
 </p>

@@ -16,5 +16,5 @@
 [𝐑𝖾𐓣𝗍𝗋𝗒](https://rentry.co/decayingcl0wn) [𝐀𝗍α](https://alwayssunnyinphilly.atabook.org/) [𝗌𝗍𝗋αωρα𝗀𝖾](https://alwayssunnyphilly.straw.page) [𝐏𝗋ⱺ𐓣ⱺυ𐓣𝗌 ρα𝗀𝖾](https://en.pronouns.page/@BRODY-BAYWATCH)
 
 <p align="center">
-𝐏ⱺ𐓣𝗒𝗍ⱺω𐓣𝗌 Kyle Spencer ! GIFT ME KYLE SPENCER PONIES GUYS
+𐓣ⱺ1 𝐉υᥣ𝗂α𐓣 𝐃𝗂ᥣᥣ𝗂𐓣𝗀𝖾𝗋 ⱺ𐓣 ρⱺ𐓣𝗒𝗍ⱺω𐓣! |  GIFT ME JULIAN PONIES SOBS ILL GIFT BACK/nf
 </p>

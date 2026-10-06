@@ -1,11 +1,11 @@
 <div align="center">
 
-![Profile visitors](https://komarev.com/ghpvc/?username=DECAYING-CLOWN&label=witches&color=red&style=flat-square)
+![Profile visitors](https://komarev.com/ghpvc/?username=DECAYING-CLOWN&label=trons&color=red&style=flat-square)
 
 </div>
 
 <p align="center">
-  <img src="https://files.catbox.moe/hru0ol.gif" alt="Kyle wow"/>
+  <img src="https://files.catbox.moe/94zlj8.jpeg" alt="hes insane"/>
 </p>
 
 <p align="center">
